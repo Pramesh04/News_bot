@@ -1,2 +1,3 @@
-# News_bot
-༺❤️༒🦁PRAMESH LION BOT🦁༒❤️༻
+# news-bot
+
+[SCAN QR CODE](https://replit.com/@BlackAmda/GiantDarkcyanChord?)
